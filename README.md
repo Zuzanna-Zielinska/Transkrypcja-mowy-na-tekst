@@ -1,0 +1,1 @@
+# Transkrypcja-mowy-na-tekst
